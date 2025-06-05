@@ -1,5 +1,5 @@
 # 💫 About Me:
-⚡Trabajo en ecommerce <br>🤝 Diseñadora gráfica de profesión<br>🌱 Estoy aprendiendo programación<br>💬 Me pueden preguntar sobre gestión de proyectos<br>
+⚡Me encanta la tecnología <br>🤝 Diseñadora gráfica de profesión<br>🌱 Estoy aprendiendo programación<br>💬 Me pueden preguntar sobre gestión de proyectos<br>
 
 
 ## 🌐 Socials:
